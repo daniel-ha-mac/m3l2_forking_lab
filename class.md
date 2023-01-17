@@ -1,3 +1,3 @@
-Daniel Ha
+Daniel HaHa
 
 Meta Front End Dev course
